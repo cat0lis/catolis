@@ -5,7 +5,7 @@
                                                   𝒞𝒶tolis or 𝐸𝓁anuelo 
                                                                             ʜᴇ / ᴛʜᴇʏ
 
-    links;      https://cat0lis.straw.page    ,   https://x.com/cat0lis 
+   links;      https://cat0lis.straw.page    ,   https://x.com/cat0lis 
                            https://www.tiktok.com/@cat0lis
 
 
