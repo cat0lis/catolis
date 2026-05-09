@@ -12,7 +12,9 @@
                 ABT ME ? 
                    Minor , 15 , Dutch (GMT+1)
                    I'm a VERY big Ayin fan , i really like Adam , Chesed and Lucio too !
-                 
+
+                 Im a yumeshipper , my f/o's are on my strawpage , im non-sharing for all of them too !
+                       ^ my main f/o is Ayin , so doubles please do not interact ! 
 
       I like to draw , and i'm in a lot of different fandoms ! 
 
@@ -23,12 +25,11 @@
     so please tell me if i say / do something you dont like : i will remember it
     and make sure it doesnt happen again ! 
 
-       another stupid silly fact about me , i really aspire to be an investigator when i grow up ,
-       which is pretty funny considering i'm
-       not really a saint myself , LMFA0 ?
+      i love Ayin i love Ayin i love Ayin i love Ayin
+      but uh yeah this is my short introduction and thanks for reading !!
 
-      but uh yeah this is my short introduction and thanks for reading , YIPPIE !! 
+       selfship makeout slop below omg gasp
 
-
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/d01c449c-4725-4e91-87c8-9ce9d204d04e" />
 
    
