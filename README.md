@@ -11,7 +11,7 @@
 
                 ABT ME ? 
                    Minor , 15 , Dutch (GMT+1)
-                   I'm a VERY big Ayin fan , i really like Adam , Chesed and Lucio too !
+                   I'm a VERY big Ayin fan , i really like Adam , Abram and Abel too (and many others) !
 
                  Im a yumeshipper , my f/o's are on my strawpage , im non-sharing for all of them too !
                        ^ my main f/o is Ayin , so doubles please do not interact ! 
